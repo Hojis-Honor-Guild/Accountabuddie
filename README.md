@@ -176,6 +176,5 @@ Early supporters will have a voice in shaping what gets built and how.
 
 ---
 
-*🦥 Hoji's been on this branch the whole time. The Guild is waiting. 
-Are you ready?*
+🦥 Hoji’s been on this branch the whole time. The Guild is being built. Are you ready to be part of it?
   
